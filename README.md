@@ -1,5 +1,5 @@
 # LoliAngelie Skins
-Not every skin I use is here, I just added the ones that are not search-able, the others I use are searchable since they are other players skins.
+Not every skin I use is here, I just added the ones that are not search-able, the others I use are searchable since they are other players skins. Btw, by search-able I mean, exactly the same as I have it. of course most could be remakeable
  
 # [- Machambu freddie](https://www.dropbox.com/s/9ugemjitnz7pcy4/-%20Machambu%20freddie.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/653194884395565056/709930092100452372/screenshot029.jpg)
