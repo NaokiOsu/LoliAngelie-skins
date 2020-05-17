@@ -7,6 +7,9 @@ Not every skin I use is here, I just added the ones that are not search-able, th
 # [- Machambu Angelsim 1](https://www.dropbox.com/s/2j77tqdzdsa7j88/-%20Machambu%20Angelsim%201.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/653194884395565056/709931803170963496/screenshot031.jpg)
 
+# [- Angebyssal](https://www.dropbox.com/s/pfenc3k4d9tlj3c/-%20Angebyssal.osk?dl=0)
+![](https://cdn.discordapp.com/attachments/706396173656784946/711672444175384636/screenshot081.jpg)
+
 # [- #KoaLigma『Niimi Sora』 #-](https://www.dropbox.com/s/ubk9q5gsr4j1cxj/-%20%20%20%20%20%20%20%20%23KoaLigma『Niimi%20Sora』%20%23-.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/653194884395565056/709932557436977212/screenshot032.jpg)
 
