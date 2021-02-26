@@ -1,6 +1,33 @@
 # LoliAngelie Skins
 Not every skin I use is here, I just added the ones that are not search-able, the others I use are searchable since they are other players skins. Btw, by search-able I mean, exactly the same as I have it. of course most could be remakeable
- 
+
+# [redpixel+jotbab edit](http://www.mediafire.com/file/vjcpb64440w0y8a/redpixel%252Bjotbab_edit.osk/file)
+![](https://i.imgur.com/RhD2KqB.png)
+
+# [- # Mrekk (2.0) «FY» #-](http://www.mediafire.com/file/rdwpbmrojuds0m0/-_%2523_Mrekk_%25282.0%2529_%25C2%25ABFY%25C2%25BB_%2523-.osk)
+![](https://osu.ppy.sh/ss/16263469/215a)
+
+# [GiraffeMiX](https://puu.sh/F0yI5/84246d4276.osk)
+![](https://osu.ppy.sh/ss/16263449/12ed)
+
+# [QvtmGS29](https://b.catgirlsare.sexy/QvtmGS29.osk)
+![](https://osu.ppy.sh/ss/16263443/35da)
+
+# [VLpAiL5J](https://b.catgirlsare.sexy/VLpAiL5J.osk)
+![](https://osu.ppy.sh/ss/16263436/29c2)
+
+# [delisha](https://www.mediafire.com/file/7rcg1vadsknbni5/delisha.osk/file)
+![](https://osu.ppy.sh/ss/16263427/8a0a)
+
+# [- 『EternuMonochromia』 - Azr8](https://drive.google.com/file/d/1Nz2SMtJLF345Q9wW25imy8szRe03S51E/view)
+![](https://osu.ppy.sh/ss/16263416/74d4)
+
+  # [- 『EternuMonochromia』 - WhiteCat](https://drive.google.com/file/d/1j5rjyXpqIqon_ILG2wMQnBYfbUOEUskU/view)
+![](https://osu.ppy.sh/ss/16263414/1dda)
+
+ # [- 『EternuMonochromia』 - Varvalian](https://drive.google.com/file/d/1mvHSff7VZAXmpB8EXSviBUtAG1qNKE-W/view)
+![](https://osu.ppy.sh/ss/16263408/574c)
+
 # [- Machambu freddie](https://www.dropbox.com/s/9ugemjitnz7pcy4/-%20Machambu%20freddie.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/653194884395565056/709930092100452372/screenshot029.jpg)
 
