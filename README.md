@@ -1,6 +1,9 @@
 # LoliAngelie Skins
 Not every skin I use is here, I just added the ones that are not search-able, the others I use are searchable since they are other players skins. Btw, by search-able I mean, exactly the same as I have it. of course most could be remakeable
 
+# [Mathi ensalada (other cursor)](https://drive.google.com/file/d/1AZ-X8aPNh8G9oPRw0ZVupSMP5vf6ohZl/view)
+![](https://i.imgur.com/JRbZ5OC.png)
+
 # [redpixel+jotbab edit](http://www.mediafire.com/file/vjcpb64440w0y8a/redpixel%252Bjotbab_edit.osk/file)
 ![](https://i.imgur.com/RhD2KqB.png)
 
